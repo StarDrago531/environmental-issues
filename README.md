@@ -1,1 +1,1 @@
-# environmental-issues
+# earth-project
